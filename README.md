@@ -22,4 +22,4 @@
 - Full-stack internship at Zelthy (Django SaaS platform)
 - Freelance contract delivered with ⭐ 5-star review on Upwork
 
-📫 Reach me: [LinkedIn](https://www.linkedin.com/in/raviraj-x007) · raviraj24y@gmail.com
+📫 Reach me: [LinkedIn](https://www.linkedin.com/in/ravi-raj-792a66221/) · raviraj24y@gmail.com
